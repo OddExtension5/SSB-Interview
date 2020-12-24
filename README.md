@@ -8,3 +8,8 @@ This content surely will help you to **Crack the SSB**.
 
 
 Best Wishes to all of you.
+
+
+## Resources
+
+[My Drive](https://drive.google.com/drive/folders/1w8a8ynAVqxo9o6TWPWa02d1Vazbn3Afo?usp=sharing)
